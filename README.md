@@ -23,6 +23,9 @@ Soon Will Be Launched Xiaomi4Unlocked App For Android And iOS That Can Control A
 
 Also You Can Update Custom Firmware From The App
 
+# BIG PROJECT
+
+Soon We Will Start To Selling Our e-scooters [ Street Legal ]
 # Donate 
 This Is A Very Big Project For The Future Donate To Help Us
 
