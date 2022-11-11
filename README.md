@@ -1,7 +1,7 @@
 # Xiaomi4Unlocked Firmware
 Xiaomi4Unlocked Is A Firmware Modification Project [ We Are Not Responsibile For Any Damages ]
 
-Preorder Our E-Scooter Now!!! www.xiaomi4unlocked.ga
+Check Out Our E-Scooters Now!!! www.xiaomi4unlocked.ga
 
 Firmware Modification **[ Custom Firmware ]**
 
